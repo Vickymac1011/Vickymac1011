@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently pursuing a Undergraduate<br>🌱 I’m currently acquiring a knowledge and Hands-on practices in Cybersecurity<br>
+🔭 I’m currently seeking a Job<br>🌱 I’m currently acquiring a knowledge and Hands-on practices in Cybersecurity<br>
 
 
 ## 🌐 Socials:
